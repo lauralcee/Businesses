@@ -1,1 +1,3 @@
 # Businesses
+[Business](http://ecommappnow.com/) is also the efforts and activities of a person who is producing goods or offering services with the intent to sell them for profit. Business Definition. Business refers to an enterprising entity or organization that carries out professional activities. They can be commercial, industrial, or others.
+The business plan introduction contains a general overview of the business plan, including a brief company description, goals and objectives and the purpose of starting the company. Additionally, business plans usually answer the following questions: What does the business do? Why start this business now?
